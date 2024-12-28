@@ -1,4 +1,4 @@
-![1735375395846.png](https://github.com/user-attachments/assets/fb3b93cf-4447-4508-bd28-b3c48d90ff15)
+![1735375413804.png](https://github.com/user-attachments/assets/50c0654a-c5a6-49bf-8f15-e443677ebe2e))
 
 Howdy, mateys!! WELCOME TO MY GITHUB ! :3
 
@@ -10,7 +10,7 @@ feel free to talk 2 me! ion bite, but i AHOY
 
 (more info in main acc) !
 
-![1735375413804.png](https://github.com/user-attachments/assets/50c0654a-c5a6-49bf-8f15-e443677ebe2e)
+![1735375493930.png](https://github.com/user-attachments/assets/697ad19d-ae7a-4bfe-9ec4-fe5b6ad2c31f)
 
 FAREWELL, FRIENDS ! ! ! !
 
