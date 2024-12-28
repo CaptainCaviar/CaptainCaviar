@@ -1,4 +1,4 @@
-![1735376602728.png](https://github.com/user-attachments/assets/73c2f00a-9288-4c87-bb55-429895855b70)
+![1735376680833.png](https://github.com/user-attachments/assets/7fbf5037-d412-4ffc-832e-8e7a0fd026aa)
 
 Howdy, mateys!! WELCOME TO MY GITHUB ! :3
 
