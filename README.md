@@ -4,9 +4,10 @@ Howdy, mateys!! WELCOME TO MY GITHUB ! :3
 
 im totally captain caviar (real 100)
 
-you can mostly find me in the crk area or the docks, sometimes nearby the bakery !! ^_^
+you can mostly find me in the crk area or the docks, the roblox area, sometimes nearby the bakery !! ^_^
 
-feel free to talk 2 me! ion bite, but i AHOY
+feel free to talk 2 me! ion bite.
+i fw anyone mostly heh..
 
 (more info in main acc) !
 
