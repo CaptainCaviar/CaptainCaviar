@@ -4,7 +4,7 @@ welcome welcome 2 my github
 
 im totally captain caviar
 
-you can mostly find me in the crk area or the docks, the roblox area, sometimes nearby the bakery !!
+you can mostly find me in the crk area or the docks, sometimes nearby the bakery !!
 
 feel free to talk 2 me! ion bite.
 i fw anyone honestly
