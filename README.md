@@ -4,7 +4,7 @@ welcome welcome 2 my github im very much going afk a lot on pt so bare with me p
 
 im totally captain caviar
 
-you can mostly find me in the crk area or the docks, sometimes nearby the bakery !!
+you can mostly find me in the crk/roblox area or the docks, sometimes nearby the bakery !!
 
 feel free to talk 2 me! ion bite.
 i fw anyone honestly
